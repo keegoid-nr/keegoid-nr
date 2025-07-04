@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @keegoid-nr, a Principal Technical Support Engineer at New Relic.
-- 👀 I’m interested in AI, Tesla, renewable energy for homes and EVs/RVs, establishing self-sustaining colonies on Luna and Mars, Bitcoin, and h+.
+- 👀 I’m a fan of AI, Tesla, SpaceX, and sustainable energy.
 - 🌱 I’m always learning how to be a better resource for my team.
 
 <!---
